@@ -1,6 +1,6 @@
 ### ARRIBA 🇲🇽
 
-Soy del México y soy amigo del Gato con Botas
+Soy del México y soy amigo del Gato con Botitas
 
 - Soy bonito
 
